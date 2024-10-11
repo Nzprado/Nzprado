@@ -1,6 +1,6 @@
-  ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
-𝕺𝖑á, 𝕸𝖊 𝖈𝖍𝖆𝖒𝖔 𝕹𝖆𝖙𝖍𝖆𝖓 𝖒𝖆𝖘 𝖕𝖔𝖉𝖊𝖒 𝖒𝖊 𝖈𝖍𝖆𝖒𝖆𝖗 𝖉𝖊 𝕻𝖗𝖆𝖉𝖔!
-.ᴛᴇɴʜᴏ 15 ᴀɴᴏꜱ 
+
+𝕺𝖑á, 𝕸𝖊 𝖈𝖍𝖆𝖒𝖔 𝕹𝖆𝖙𝖍𝖆𝖓 𝖒𝖆𝖘 𝖕𝖔𝖉𝖊𝖒 𝖒𝖊 𝖈𝖍𝖆𝖒𝖆𝖗 𝖉𝖊 𝕻𝖗𝖆𝖉𝖔
+.ᴛᴇɴʜᴏ 15 ᴀɴᴏꜱ   ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 .ᴍᴏʀᴏ ᴇᴍ ᴄᴜʀɪᴛɪʙᴀ/ᴘᴀʀᴀɴá 🇧🇷📍
 .ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
 ![](https://www.icegif.com/wp-content/uploads/2024/08/demon-slayer-icegif-1.gif)
