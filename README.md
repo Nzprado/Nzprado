@@ -5,7 +5,7 @@
 - ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
 - configuro bots do telegram =)
   
-![](https://media1.tenor.com/m/jfkL2Yql-nEAAAAC/itadori-yuji-yuji-itadori.gif)
+![](https://media1.tenor.com/m/ESgNB74lw54AAAAC/itadori-angry-jujutsu-kaisen.gif)
 
 <!--
 **Nzprado/Nzprado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
