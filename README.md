@@ -3,6 +3,7 @@
 - ᴛᴇɴʜᴏ 15 ᴀɴᴏꜱ   ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 - ᴍᴏʀᴏ ᴇᴍ ᴄᴜʀɪᴛɪʙᴀ/ᴘᴀʀᴀɴá 🇧🇷📍
 - ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
+- configuro bots do telegram =)
 ![](https://www.icegif.com/wp-content/uploads/2024/08/demon-slayer-icegif-1.gif)
 
 <!--
