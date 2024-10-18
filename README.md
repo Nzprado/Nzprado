@@ -4,7 +4,8 @@
 - ᴍᴏʀᴏ ᴇᴍ ᴄᴜʀɪᴛɪʙᴀ/ᴘᴀʀᴀɴá 🇧🇷📍
 - ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
 - configuro bots do telegram =)
-![](https://www.icegif.com/wp-content/uploads/2024/08/demon-slayer-icegif-1.gif)
+  
+![](https://media1.tenor.com/m/jfkL2Yql-nEAAAAC/itadori-yuji-yuji-itadori.gif)
 
 <!--
 **Nzprado/Nzprado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
