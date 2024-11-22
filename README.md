@@ -4,7 +4,7 @@
 - ᴍᴏʀᴏ ᴇᴍ ᴄᴜʀɪᴛɪʙᴀ/ᴘᴀʀᴀɴá 🇧🇷📍
 - ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
 - configuro bots do telegram =)
-- voce pode entrar em contato comigo no email (nathan.goncalves.prado@escola.pr.gov.br)
+- voce pode entrar em contato comigo no email nathan.goncalves.prado@escola.pr.gov.br
   
 ![](https://media1.tenor.com/m/ESgNB74lw54AAAAC/itadori-angry-jujutsu-kaisen.gif)
 
