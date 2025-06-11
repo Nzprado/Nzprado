@@ -1,6 +1,6 @@
 
 𝕺𝖑á, 𝕸𝖊 𝖈𝖍𝖆𝖒𝖔 𝕹𝖆𝖙𝖍𝖆𝖓 𝖒𝖆𝖘 𝖕𝖔𝖉𝖊𝖒 𝖒𝖊 𝖈𝖍𝖆𝖒𝖆𝖗 𝖉𝖊 𝕻𝖗𝖆𝖉𝖔
-- ᴛᴇɴʜᴏ 15 ᴀɴᴏꜱ   ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
+- ᴛᴇɴʜᴏ 16 ᴀɴᴏꜱ   ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺
 - ᴍᴏʀᴏ ᴇᴍ ᴄᴜʀɪᴛɪʙᴀ/ᴘᴀʀᴀɴá 🇧🇷📍
 - ᴇꜱᴛᴏᴜ ᴀᴘʀᴇɴᴅᴇɴᴅᴏ ᴘʀᴏɢʀᴀᴍᴀçãᴏ com [alura](https://www.alura.com.br/?srsltid=AfmBOopO92yCtQHFZDjwWsa6mtIAbuygwfBqJBm2eokzm7oQfWCXbgFT)
 - configuro bots do telegram =)
